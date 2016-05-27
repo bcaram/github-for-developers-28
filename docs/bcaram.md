@@ -3,3 +3,4 @@ Born in Danbury CT, live in Hudson MA
 Favorite food: Linguica
 Hobby: Boating
 Favorite Color: Deep Crimson
+Current City: Bourne
